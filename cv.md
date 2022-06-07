@@ -6,7 +6,7 @@ Telegram: @BeloSnejkaa.
 VK: https://vk.com/liilnigga.
 
 ### Short info
-18 years old with a lot of ambitions and not less time to complete all of them. I aim to be an JavaScript developer in my future.
+18 years old with a lot of ambitions and not less time to complete all of them.
 
 #### Work experience
 1 year of freelance as a art designer.
